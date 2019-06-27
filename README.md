@@ -1,4 +1,4 @@
-# NODIRBEK ABULOV BEGNAZAROVICH 
+# NODIRBEK ABULOV 
 
 # [Telegram Desktop][telegram_desktop] – Official Messenger
 
